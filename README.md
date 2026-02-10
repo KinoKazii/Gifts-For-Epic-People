@@ -12,7 +12,9 @@ FIRST 2 FOR REN.
 
 THIS IS FOR TIAA.
 
-hi im working on one for Mordecai ill post it when its finished!!!
+<img width="1000" height="1000" alt="Image" src="https://github.com/user-attachments/assets/5db224f3-b819-4024-9975-c45c38685298" />
+
+THIS ONE IS FOR MORDECAI
 
 **!!** **READ** **!!** 
 
