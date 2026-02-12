@@ -1,22 +1,25 @@
-Feel free to download ! 
+Hey so yea i read the doc.
+Uhm, please dont call me fang , it makes me heavily uncomfortable.
+So im writing this in the morning cus yesterday i couldnt but uhm, ill take a break, Since things in-game and irl are happening. (Example: My mum hit me)
 
-<img width="1000" height="1000" alt="Image" src="https://github.com/user-attachments/assets/47d14df5-da5c-443d-90e8-19a6cea7457d" />
+But if i ever join pony town it might be just bcs i want to make a skin or Just play idk.
 
-<img width="1000" height="1000" alt="Image" src="https://github.com/user-attachments/assets/54483f21-f4fb-40d4-97f4-cc7ff0dc7eba" />
+Please do **not** interact even if ur a friend/close friend, i need some space and want to calm down.
+
+If u wanna come to me just for checking how i am thats okay, but not every minute.
+
+Now im not trying to make yall feel guilty but this is really how i feel, Disgusting, Guilty (im the kne supposed to be it.) , Ugly and other bad things.
+
+If someone else is also going thru these things i hope ur feeling better and heal.
+
+Now, i dont wanna tag anyone here bcs i dont have permission , but if ur reading this (R) well im sorry, again. For everything ive made that made ur fam feel bad or even ur friends, As i said before im not trying to make u feel guilty , im just still saying sorry bcs yknow how i am, if i make something bad or make anyone feel bad, i always say sorry. Now if u wanna tell me everything please dont, but if its something important make a repository and ill read it.
+
+I deleted those skins who looked the most as others, and if it still looks like them , then ill change something else.
+
+Oh horrible fact, when i start to cry or feeling guilty , something makes me v•m1T.
+(Sorry) 
+
+So now, leave me some space.
 
 
-FIRST 2 FOR REN.
-
-
-<img width="1000" height="1000" alt="Image" src="https://github.com/user-attachments/assets/542f8d93-7dc0-4e18-8bf2-f4f281ea39c6" />
-
-THIS IS FOR TIAA.
-
-<img width="1000" height="1000" alt="Image" src="https://github.com/user-attachments/assets/5db224f3-b819-4024-9975-c45c38685298" />
-
-THIS ONE IS FOR MORDECAI
-
-**!!** **READ** **!!** 
-
-U might (MAYBE, IM NOT SURE.) ask yourself "why is Kazii being so kind ??" well its not bcs im like trying to be friends, but yall r the lwk the only ppl that i see cool EVEN if we're ex-mutuals / ex-friends , NO im not trying to make yall feel guilty, NO. I just wanna be kind and show that i changed , Maybe if u like the gifts u can tell me in pony town or just dont idk/idm , Okay i hope yall like them !!!!  #Joy whahowoowow
-
+-Kino
